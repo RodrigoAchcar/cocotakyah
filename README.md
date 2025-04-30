@@ -1,2 +1,2 @@
 extracted files from a phone at 2024/11/21, São Paulo. Supposed br "authorities". Looks like they BLE triangulate and steal people data. Maybe on international events, like rock concerts. 
-Yep, don't come to brazil, the police may rob you
+Yep, don't come to events in brazil. These aren't regular working class policeman. They are spoiled playboys with superiority complexes from a lineage of sick relatives. Unfortunately they have military privileges with a hidden tribune tha leverages them.
